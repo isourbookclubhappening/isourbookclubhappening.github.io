@@ -1,2 +1,2 @@
-# ijmontgomery7.github.io
-Website to be hosted at goonsquad.live
+# isourbookclubhappening
+Website to be hosted at isourbookclubhappening.com
